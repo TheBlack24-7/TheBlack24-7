@@ -4,5 +4,5 @@
 - Social | Activitist 
 - Hobby| Creator Anything Anytime 
 - Teligram channel - https://t.me/TheBlackXYZ
-- Instagram - https://Instgram - TheBlackxyz
+- Instagram - https://Instgram/TheBlackxyz
 -  Thanks for view 😌😌
